@@ -1,1 +1,1 @@
-# NN-Assignment-3
+Assignment 2 explanation video- https://drive.google.com/file/d/129WchGhlgzbMPG04-kCvep_NH8T5QIaJ/view?usp=sharing
